@@ -1,5 +1,5 @@
-#Larry Pllotter
+Ôªø#Larry Pllotter
 
 Esta serie de libros cuentan la historia de un hacker de los que hay pocos.
 
-**VÌctor Su·rez GutiÈrrez**
+**V√≠ctor Su√°rez Guti√©rrez**
