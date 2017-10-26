@@ -2,4 +2,5 @@
 
 Esta serie de libros cuentan la historia de un hacker de los que hay pocos.
 
-**Víctor Suárez Gutiérrez**, Git lover.
+**Víctor Suárez Gutiérrez**, Git lover & Larry Plotter Lover.
+
